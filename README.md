@@ -51,7 +51,7 @@
 
 </div>
 
-> **Takeaway**: Bengaluru dominates hiring, but Data Analyst roles see **108 applicants per opening** – highly competitive![file:1]
+> **Takeaway**: Bengaluru dominates hiring, but Data Analyst roles see **108 applicants per opening** – highly competitive!
 
 ---
 
